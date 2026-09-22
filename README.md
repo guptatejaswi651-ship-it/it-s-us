@@ -1,1 +1,1 @@
-hey i have to work on git because tomorrow will be my test and have learn some good things 
+hey i have to work on git because tomorrow will be my test and have learn some good things git 
